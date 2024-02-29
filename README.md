@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TellerMen
+- 👀 I’m interested in codes
+- 🌱 I’m currently learning GLua
+- 💞️ I’m looking to collaborate on GMod - FrenchLight RP
+- 📫 Here's my Gmail victordupuis.vd@gmail.com
+- ⚡ Fun fact: The FrenchLight RP dev is furious beacause of TOO MANY probleme and leaved the server, but i'll take care of that
